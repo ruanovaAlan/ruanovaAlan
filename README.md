@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 👨‍💻 About Me:
 Hi! I'm Alan <br>I'm a computer engineer. <br> I am someone who is passionate about continuous learning and creativity. I am always seeking out new opportunities to expand my knowledge and skills in various fields. I love exploring new ideas and projects, and I enjoy both the process of creation and the final outcomes. I am naturally curious and thrive on facing challenges that allow me to grow and evolve constantly.
 
 
